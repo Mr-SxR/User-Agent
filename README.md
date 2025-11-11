@@ -16,7 +16,7 @@ This project is one of those explorations.
 
 ## 📫 Contact
 
-Feel free to reach out to me via email: **msg.sifat@gmail.com**
+Feel free to reach out to me via email: **masudurrahmansifat@gmail.com**
 
 ---
 
